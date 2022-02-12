@@ -1,1 +1,11 @@
-# resephariandapur.github.io
+# https://resephariandapur.github.io
+# https://collectionfood.web.app
+# https://deliciousfoods.web.app
+# https://foodkitchen.web.app
+# https://foodtoday.web.app
+# https://happyfood.web.app
+# https://menufood.web.app
+# https://recipesfoody.web.app
+# https://resep-harian-dapur.web.app
+# https://resephariandapur.web.app
+# https://resephariandapur.blogspot.com
